@@ -1,1 +1,1 @@
-tc.c1992.online
+tc.c1992.shop

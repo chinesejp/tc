@@ -1,1 +1,1 @@
-tc.c1992.shop
+tc.c1992.store

@@ -1,1 +1,1 @@
-auckland.co.nz
+www.newzealand.com

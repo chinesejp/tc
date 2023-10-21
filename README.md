@@ -1,1 +1,1 @@
-chineseherald.co.nz
+auckland.co.nz

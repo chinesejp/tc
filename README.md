@@ -1,1 +1,1 @@
-d25fq68wul642o.cloudfront.net
+mi.com

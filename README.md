@@ -1,1 +1,1 @@
-www.newzealand.com
+okok.online

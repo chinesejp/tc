@@ -1,1 +1,1 @@
-mi.com
+www.chineseherald.co.nz
